@@ -7,6 +7,4 @@ I have little to no hobbies, but the few I do have I'll put here > Drawing (trad
 
 I hope this helps you get to know me a bit better x) But feel free to talk with me! I do love a good chat!
 
-![✿](https://github.com/user-attachments/assets/9ba1aec2-5e6d-47c7-8c2b-66c873aff24d)
-
-
+![d3f45d89-3302-4689-a680-0a57f489fc76](https://github.com/user-attachments/assets/e11fd1b0-7aa1-4ef3-9c15-231c837230a1)
