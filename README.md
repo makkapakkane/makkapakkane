@@ -13,4 +13,4 @@ I hope this helps you get to know me a bit better x) But feel free to talk with 
 
 made by johnlarriva on instagram ^ btw
 
-https://open.spotify.com/track/1Roq03sTKb6TPKBY89YJ4v?si=f02b84dca9194a5f
+
