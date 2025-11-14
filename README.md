@@ -17,3 +17,4 @@ I hope this helps you get to know me a bit better x) But feel free to talk with 
 made by johnlarriva on instagram ^ btw
 
 
+<img width="425" height="132" alt="Screenshot 2025-11-14 180915" src="https://github.com/user-attachments/assets/db1fe486-ff68-4c93-889e-c101d75619e9" />
