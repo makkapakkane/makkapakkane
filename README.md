@@ -1,8 +1,8 @@
 # About me - 
 THIS ACCOUNT IS PURELY FOR PONYTOWN !!!
 
-Hiya, I'm Pakkane, but you can call me either Ne or Pakka.
-I usually sit by the main pathway in ponytown or the UNDERTALE fandom area! So if you need to find me I'll be in either of those spots. If you do see me don't be shy to sit and or talk with me! I love meeting new people ^_^ Though I might be afk, but you can just pop me a whisper and I'll most likely respond! Oh, and I can be a bit awkward/shy, I'm not the best with socializing with people :'), I do tend to overthink quite a few things. So if you think I don't like you it's definitely not that! I'm just a bit awkward 7-7
+Hii! I'm Pakkane, but you can call me either Pakka or whichever character I'm cosplaying.
+I usually sit by the main pathway in ponytown or the Stranger Things fandom! So if you need to find me I'll be in either of those spots. If you do see me don't be shy to sit and or talk with me! I love meeting new people ^_^ Though I might be afk, but you can just pop me a whisper and I'll most likely respond! Oh, and I can be a bit awkward, I'm not the best with socializing with people.
 
 I have quite a few interest, most are dormant though. My interests consists of; IT, Gorillaz, Undertale, Sk8 the Infinity, The Promised Neverland, Sonic the Hedgehog, Haikyuu!! Five Nights at Freddy's, Day Shift at Freddy's, Trolls, Bungo Stray Dogs, Neon Genesis Evangelion, Stranger Things, and probably more that I can't think of right now xb.
 
@@ -14,7 +14,10 @@ I hope this helps you get to know me a bit better x) But feel free to talk with 
 
 <div align="center">
 <h6 align>
-<a href="https://pakkane.atabook.org/" target="_blank">新book​</a>  
+<a href="https://pakkane.atabook.org/" target="_blank">新book​</a>
+
+<a href="https://rentry.co/makkapakkane" target="_blank">rentry</a>  
+<a href="https://en.pronouns.page/@Pakkane" target="_blank">prns</a>
 ‎
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
