@@ -15,7 +15,7 @@ I have little to no hobbies, but the few I do have I'll put here > Drawing (trad
 
 I hope this helps you get to know me a bit better! Also c+h are always appreciated <3
 
-# DTTM ABOUT STRANGER THINGS SEASON 5. 
+ *DTTM ABOUT STRANGER THINGS SEASON 5.*
 
 <div align="center">
 <h6 align>
