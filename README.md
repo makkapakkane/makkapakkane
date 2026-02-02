@@ -10,7 +10,7 @@ And as for my current active interests they are; Gorillaz, Valorant, Stranger Th
 
 I have little to no hobbies, but the few I do have I'll put here > Drawing (traditonal, sometimes digital although I am not very good at it) And reading.
 
-I hope this helps you get to know me a bit better x) But feel free to talk with me! I do love a good chat!
+I hope this helps you get to know me a bit better! Also c+h are always appreciated <3
 
 <div align="center">
 <h6 align>
