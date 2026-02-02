@@ -1,5 +1,8 @@
-# About me - 
-<div align="center"> THIS ACCOUNT IS PURELY FOR PONYTOWN !!!
+<div align="center">
+  
+# About me 
+
+   THIS ACCOUNT IS PURELY FOR PONYTOWN !!!
 
 Hii! I'm Pakkane, but you can call me either Pakka or whichever character I'm cosplaying.
 I usually sit by the main pathway in ponytown or the Stranger Things fandom! So if you need to find me I'll be in either of those spots. If you do see me don't be shy to sit and or talk with me! I love meeting new people ^_^ Though I might be afk, but you can just pop me a whisper and I'll most likely respond! Oh, and I can be a bit awkward, I'm not the best with socializing with people.
@@ -12,7 +15,7 @@ I have little to no hobbies, but the few I do have I'll put here > Drawing (trad
 
 I hope this helps you get to know me a bit better! Also c+h are always appreciated <3
 
-# DONT TALK TO ME ABOUT STRANGER THINGS SEASON 5. #
+# DTTM ABOUT STRANGER THINGS SEASON 5. 
 
 <div align="center">
 <h6 align>
