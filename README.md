@@ -6,7 +6,7 @@ I usually sit by the main pathway in ponytown or the Stranger Things fandom! So 
 
 I have quite a few interest, most are dormant though. My interests consists of; IT, Gorillaz, Undertale, Sk8 the Infinity, The Promised Neverland, Sonic the Hedgehog, Haikyuu!! Five Nights at Freddy's, Day Shift at Freddy's, Trolls, Bungo Stray Dogs, Neon Genesis Evangelion, Stranger Things, and probably more that I can't think of right now xb.
 
-And as for my current active interests they are; Gorrilaz, Valorant, Stranger Things & IT.
+And as for my current active interests they are; Gorillaz, Valorant, Stranger Things & IT.
 
 I have little to no hobbies, but the few I do have I'll put here > Drawing (traditonal, sometimes digital although I am not very good at it) And reading.
 
