@@ -32,5 +32,6 @@ I hope this helps you get to know me a bit better! Also c+h are always appreciat
 
 ![WhatsApp Image 2026-02-03 at 02 27 53](https://github.com/user-attachments/assets/86069f46-1fed-4c50-8116-1dd695eacd0d)
 
+ᓚᘏᗢ
 
 <img width="425" height="132" alt="Screenshot 2025-11-14 180915" src="https://github.com/user-attachments/assets/db1fe486-ff68-4c93-889e-c101d75619e9" />
