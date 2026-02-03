@@ -30,9 +30,7 @@ I hope this helps you get to know me a bit better! Also c+h are always appreciat
   </a>
 </p>
 
-![0bfe7458-ca6b-4838-b453-ad2d936f05eb](https://github.com/user-attachments/assets/9f4b8edd-e023-4fbf-b100-9702a9056754)
-
-made by johnlarriva on instagram ^ btw
+![WhatsApp Image 2026-02-03 at 02 27 53](https://github.com/user-attachments/assets/86069f46-1fed-4c50-8116-1dd695eacd0d)
 
 
 <img width="425" height="132" alt="Screenshot 2025-11-14 180915" src="https://github.com/user-attachments/assets/db1fe486-ff68-4c93-889e-c101d75619e9" />
