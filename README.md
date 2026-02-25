@@ -22,7 +22,7 @@ I hope this helps you get to know me a bit better! Also c+h are always appreciat
 <a href="https://pakkane.atabook.org/" target="_blank">新book​</a>
 
 <a href="https://rentry.co/makkapakkane" target="_blank">rentry</a>  
-<a href="https://en.pronouns.page/@Pakkane" target="_blank">prns</a>
+<a href="https://pronouns.cc/@Pakkane" target="_blank">pronouns</a>
 ‎
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
