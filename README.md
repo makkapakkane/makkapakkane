@@ -17,7 +17,7 @@ $\color{#D8AFB5}{𝐁𝐅𝐘𝐈}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;
 $\color{#C18B99}{𝗜𝗡𝗧𝗦}$ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; $\color{#E6CDC8}{── .✦}$ &nbsp;&nbsp;&nbsp; $\color{#C18B99}{𝖢*𝗁⠀𝖾𝗇𝖼!}$ &nbsp;&nbsp;&nbsp; $\color{#CE8096}{ฅ}$ &nbsp;&nbsp;&nbsp; $\color{#C18B99}{𝖯𝗋𝖾𝖿𝖾𝗋⠀𝗍𝗈⠀𝗐2𝗂⠀𝗐/⠀𝗉𝖾𝗈𝗉𝗅𝖾⠀𝖨'𝗆⠀𝗇𝗈𝗍⠀𝖿𝖺𝗆𝗂𝗅𝗂𝖺𝗋⠀𝗐𝗂𝗍𝗁}$ 
 
 &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; <a href="https://pronouns.cc/@Pakkane" target="_blank">pronouns</a> &nbsp;&nbsp;&nbsp; <a href="https://catsinthecold.atabook.org/" target="_blank">新book​</a>
-‎ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;
+‎ &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp; <a href="https://catzinthecold.straw.page" target="_blank">strawpage</a> 
 
 <div align="left">
 <img width="510" height="300" alt="image" src="https://github.com/user-attachments/assets/61f89ff0-463e-4942-b427-ab1e9099e7a4" />
